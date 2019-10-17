@@ -2,4 +2,10 @@
 
 # Holahola :)
 
-########El profe del seminario es terrible de otaku
+########El profe del seminario es TERRRRRRRRRRRRRIBLE DE SPINULOSO
+
+#Tres tristes tigres trigo tragaban en un trigal
+
+#awa
+#de
+#uwu
