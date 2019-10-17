@@ -3,6 +3,14 @@
 # NO >: l 
 
 
+########El profe del seminario es terrible de otaku
+
+# Holas!
+
+# Holas! v.2
+
+=======
+
 ########El toti es terrible de otaku
 
 #blablabladsklfsdfsd
@@ -12,3 +20,8 @@
 
 ##Toti super virulento y mentiroso
 
+
+
+##Nueva edición. 
+
+#COLUUUUUUUUUUUUUUUUUUUUMBUUUUUUUUUUUUUUUUUUSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
