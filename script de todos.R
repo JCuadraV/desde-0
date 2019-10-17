@@ -1,13 +1,14 @@
 # hola a todos y todas, vamos a colaborar en este proyecto
 
-# Holahola :)
+# NO >: l 
 
-########El profe del seminario es TERRRRRRRRRRRRRIBLE DE SPINULOSO
 
-#Tres tristes tigres trigo tragaban en un trigal
+########El toti es terrible de otaku
 
-#awa
-#de
-#uwu
+#blablabladsklfsdfsd
+#flkgndf43t3ll242
+=======
+########El profe del seminario es terrible de otaku
 
-#La Sophie recibe trato especial del PRofe
+##Toti super virulento y mentiroso
+
